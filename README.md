@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @tutodres
-- 👀 I’m interested in see big ass
+- 👀 I’m interested in
+- 
 - 🌱 I’m currently learning futbol
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
